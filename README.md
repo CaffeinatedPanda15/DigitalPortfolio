@@ -4,9 +4,9 @@
 
 <img src="./Work%20Readiness/Career%20Development.JPG" alt="Career Development" width="500"/>
 
-During the third year of my course at the Cape Peninsula University of Technology i was tasked with completetion of a work module within our Work Readiness program named Career Development.
+During the third year of my course at the Cape Peninsula University of Technology i was tasked with completetion of a work module within our Work Readiness program.
 
-
+The task was completion of 
 
 ### Skills and Interests
 
@@ -16,13 +16,19 @@ During the third year of my course at the Cape Peninsula University of Technolog
 
 <img src="./Work%20Readiness/Personality%20Assessment.JPG" alt="Personality Assessment" width="500"/>
 
+During the third year of my course at the Cape Peninsula University of Technology i was tasked with completetion of a work module within our Work Readiness program.
+
 ### Create a CV
 
 <img src="./Work%20Readiness/Create%20CV.JPG" alt="Create CV" width="500"/>
 
+During the third year of my course at the Cape Peninsula University of Technology i was tasked with completetion of a work module within our Work Readiness program.
+
 ### CV Submission
 
 <img src="./Work%20Readiness/CV%20Submission.JPG" alt="CV Submission" width="500"/>
+
+During the third year of my course at the Cape Peninsula University of Technology i was tasked with completetion of a work module within our Work Readiness program.
 
 ### Business Communication
 
