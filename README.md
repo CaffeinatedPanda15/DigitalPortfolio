@@ -2,7 +2,11 @@
 ## Work Readiness Program
 ###Career Development
 
+![Career Develoment Course evidence](/WorkReadiness/CareerDevelopment.JPG)
+
 ###Skills and Interests
+
+![Skills and Interests evidence]()
 
 ###Personality Assessment
 
