@@ -4,6 +4,10 @@
 
 <img src="./Work%20Readiness/Career%20Development.JPG" alt="Career Development" width="500"/>
 
+During the third year of my course at the Cape Peninsula University of Technology i was tasked with completetion of a work module within our Work Readiness program named Career Development.
+
+
+
 ### Skills and Interests
 
 <img src="./Work%20Readiness/Skills%20and%20interest.JPG" alt="Skills and Interest" width="500"/>
