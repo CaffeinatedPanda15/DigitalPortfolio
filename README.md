@@ -12,6 +12,8 @@ The task was completion of
 
 <img src="./Work%20Readiness/Skills%20and%20interest.JPG" alt="Skills and Interest" width="500"/>
 
+During the third year of my course at the Cape Peninsula University of Technology i was tasked with completetion of a work module within our Work Readiness program.
+
 ### Personality Assessment
 
 <img src="./Work%20Readiness/Personality%20Assessment.JPG" alt="Personality Assessment" width="500"/>
