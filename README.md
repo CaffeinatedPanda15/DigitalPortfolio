@@ -8,9 +8,9 @@ During the third year of my course at the Cape Peninsula University of Technolog
 
 The task was completion of the Career Development Module. The module would inform us of important aspects of building a career within the coporate world. The module dealt with things such as career planning, types of skills and career counselling. 
 
-I completed the module, engaging with the content that was provided through the module and carefulling ensuring that i would remember and implement what i learned.
+I completed the module, engaging with the content that was provided and carefulling ensuring that i would remember and implement what i learned.
 
-
+By completing this module i gained a new understanding of what is required for me to do in order to choose and plan the type of career i wish to have. It boosted my confidence in my decision to study Applications Development.
 
 ### Skills and Interests
 
@@ -18,11 +18,19 @@ I completed the module, engaging with the content that was provided through the 
 
 During the third year of my course at the Cape Peninsula University of Technology i was tasked with completetion of a work module within our Work Readiness program.
 
+The task was completion of a module involving Sills and Interest. This module was made to inform us of the definition of values, what is a transferable skill, what are interests and how to describe them and how values influence career choices.
+
+I completed the module, engaging with the content that was provided and carefulling ensuring that i would remember and implement what i learned.
+
+By completing this module i gained a new understanding of how my personal values will influence my career choies. The nature of transferable skills comforts me with the idea that if i am unable to find work within my choen field perhaps an adjacent field can be relied on.
+
 ### Personality Assessment
 
 <img src="./Work%20Readiness/Personality%20Assessment.JPG" alt="Personality Assessment" width="500"/>
 
 During the third year of my course at the Cape Peninsula University of Technology i was tasked with completetion of a work module within our Work Readiness program.
+
+
 
 ### Create a CV
 
