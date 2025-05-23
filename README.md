@@ -6,7 +6,11 @@
 
 During the third year of my course at the Cape Peninsula University of Technology i was tasked with completetion of a work module within our Work Readiness program.
 
-The task was completion of 
+The task was completion of the Career Development Module. The module would inform us of important aspects of building a career within the coporate world. The module dealt with things such as career planning, types of skills and career counselling. 
+
+I completed the module, engaging with the content that was provided through the module and carefulling ensuring that i would remember and implement what i learned.
+
+
 
 ### Skills and Interests
 
