@@ -30,7 +30,11 @@ By completing this module i gained a new understanding of how my personal values
 
 During the third year of my course at the Cape Peninsula University of Technology i was tasked with completetion of a work module within our Work Readiness program.
 
+The Personality Assessment involded matching personalities with the career option they would thrive within. The module also holds infiormation related toi the types of personalities and the various tupes of work they are best suited to within a corporation.
 
+I completed the module, engaging with the content that was provided and carefulling ensuring that i would remember and implement what i learned.
+
+By completing this module i gained a new understanding of how different personalities thrive with different kinds of work. I have also discovered the tuype of personality I am and can move forward with the knowledge of what kind of work i prefer.
 
 ### Create a CV
 
@@ -38,11 +42,17 @@ During the third year of my course at the Cape Peninsula University of Technolog
 
 During the third year of my course at the Cape Peninsula University of Technology i was tasked with completetion of a work module within our Work Readiness program.
 
+The
+
+I completed the module, engaging with the content that was provided and carefulling ensuring that i would remember and implement what i learned.
+
 ### CV Submission
 
 <img src="./Work%20Readiness/CV%20Submission.JPG" alt="CV Submission" width="500"/>
 
 During the third year of my course at the Cape Peninsula University of Technology i was tasked with completetion of a work module within our Work Readiness program.
+
+I completed the module, engaging with the content that was provided and carefulling ensuring that i would remember and implement what i learned.
 
 ### Business Communication
 
