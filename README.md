@@ -58,7 +58,7 @@ For this module i had to create a CV and submit it, using all that I had learned
 
 I completed the module, engaging with the content that was provided and carefulling ensuring that i would remember and implement what i learned.
 
-
+Completion of this module gave me the experiance in making a CV. I now know how to create a CV and also what is required to make a good CV.
 
 ### Business Communication
 
