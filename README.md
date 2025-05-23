@@ -42,9 +42,11 @@ By completing this module i gained a new understanding of how different personal
 
 During the third year of my course at the Cape Peninsula University of Technology i was tasked with completetion of a work module within our Work Readiness program.
 
-The
+This Module was to inform of of the importance of a CV, the layout of a proper CV, its contents and what information should be focused on.
 
 I completed the module, engaging with the content that was provided and carefulling ensuring that i would remember and implement what i learned.
+
+By completing this module i gained a new understanding of what a CV is and what content should be inside it. After completing this module I know and can make an informed decision on whatb should be in my CV.
 
 ### CV Submission
 
@@ -52,7 +54,11 @@ I completed the module, engaging with the content that was provided and carefull
 
 During the third year of my course at the Cape Peninsula University of Technology i was tasked with completetion of a work module within our Work Readiness program.
 
+For this module i had to create a CV and submit it, using all that I had learned from the previous module.
+
 I completed the module, engaging with the content that was provided and carefulling ensuring that i would remember and implement what i learned.
+
+
 
 ### Business Communication
 
