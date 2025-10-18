@@ -96,7 +96,7 @@ I completed the module, engaging with the content that was provided and carefull
 
 Completion of this module educated me on the best way to conduct an interview. What to wear and how to speak.
 
-### Professioanl Networking
+### Professional Networking
 
 <img src="./Work%20Readiness/Professional%20Networking.JPG" alt="Professional Networking" width="500"/>
 
